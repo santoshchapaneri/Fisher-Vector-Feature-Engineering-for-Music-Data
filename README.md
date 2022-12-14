@@ -29,8 +29,7 @@ https://www.ias.ac.in/article/fulltext/sadh/045/00/0073
 ![image](https://user-images.githubusercontent.com/17112412/207681100-a29d410c-1e1d-44bc-87f2-988c024963f9.png)
 
 
-![image](https://user-images.githubusercontent.com/17112412/207681201-7ef93892-cf46-4371-a761-56c65534d139.png)
-
+![image](https://user-images.githubusercontent.com/17112412/207681993-96832ca5-2193-44ce-9e90-d16c7a062d72.png)
 
 ![image](https://user-images.githubusercontent.com/17112412/207681296-a92fdd4e-c68e-46a0-aba7-07f25ad45e36.png)
 
